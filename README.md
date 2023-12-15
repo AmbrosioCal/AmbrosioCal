@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there I'm AmbrosioCal. Let's get straight into it!👋
 
 <!--
 **AmbrosioCal/AmbrosioCal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
